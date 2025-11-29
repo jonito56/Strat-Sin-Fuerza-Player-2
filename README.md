@@ -1,1 +1,0 @@
-# Strat-Sin-Fuerza-Player-2
